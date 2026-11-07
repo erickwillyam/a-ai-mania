@@ -1,1 +1,1 @@
-# a-ai-mania
+# acai-maniaa
